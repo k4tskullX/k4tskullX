@@ -7,6 +7,7 @@
 <p>
   
 </p>
+<p align="center">
   <img width="750" height="60" src="https://64.media.tumblr.com/a43db1e911e8107f35119622df772e52/b15d23a765658ea4-3d/s1280x1920/3c7f3767d66cc0710d12a0e5609dcc25abad3103.pnj"> 
 
 <p align="center">
