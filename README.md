@@ -21,4 +21,5 @@ info ⋆ info
   
 </p>
 
+<p align="center">
 <img width="250" height="500" src="https://i.postimg.cc/85tBPs7F/image.png"> 
