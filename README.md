@@ -13,7 +13,7 @@
 <p align="center">
 Rhett ⋆ He/Him ⋆ 15
 <p align="center">
-info ⋆ info
+Bakugo Fictkin ⋆ Gay mlm
 <p align="center">
 info ⋆ info
 
