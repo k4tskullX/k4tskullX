@@ -16,3 +16,5 @@ Rhett ⋆ He/Him ⋆ 15
 info ⋆ info
 <p align="center">
 info ⋆ info
+
+<img width="200" height="500" src="https://i.postimg.cc/85tBPs7F/image.png"> 
