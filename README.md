@@ -15,7 +15,7 @@ Rhett ⋆ He/Him ⋆ 15
 <p align="center">
 Bakugo Fictkin ⋆ Gay mlm
 <p align="center">
-info ⋆ info
+Mha Area ⋆ Ghost BC area
 
 <p>
   
