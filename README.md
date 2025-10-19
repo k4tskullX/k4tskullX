@@ -17,4 +17,9 @@ info ⋆ info
 <p align="center">
 info ⋆ info
 
+<p>
+  
+</p>
+
+<p align="center">
 <img width="200" height="500" src="https://i.postimg.cc/85tBPs7F/image.png"> 
